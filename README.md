@@ -1,4 +1,4 @@
-# seoa-partner
+# Partners
 
 ## 구름 소프트
 https://clsw.kr/
