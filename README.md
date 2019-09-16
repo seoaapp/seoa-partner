@@ -19,9 +19,3 @@ https://wonderbot.xyz/
 
 ## PMH Studio
 https://discord.gg/FaqbBAT
-
-## Team GODS
-https://discord.gg/UzmJ3h8
-
-## ZEONPLEX
-https://discord.gg/wrpUhhA
